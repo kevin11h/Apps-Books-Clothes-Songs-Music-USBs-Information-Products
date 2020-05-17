@@ -1,4 +1,13 @@
 # Apps-Books-Clothes-Songs-Music-USBs-Information-Products
+0. Affiliate Links Network
+## 7 Master Producst Choose 1
+1. App
+2. USB / Crypto wallet
+3. books
+4. songs
+5. crypto cards collectible Poker Packs Learning memory Games
+6. wallets watches purses pouches
+7. hats visors caps beanies
 
 # Hats
 
